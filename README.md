@@ -10,4 +10,5 @@ after that causmic club takeover session they guided and mentor us on what to do
 
 
 # Day 3
+Our third day of induction started in auditorium 
 
