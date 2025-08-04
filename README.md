@@ -9,4 +9,5 @@ our next session of induction started in auditorium expert lecture by Dr. Arashd
 after that causmic club takeover session they guided and mentor us on what to do in college life and guide on GitHub 
 
 
-#Day 3
+# Day 3
+
