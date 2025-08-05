@@ -13,3 +13,10 @@ after that causmic club takeover session they guided and mentor us on what to do
 Our third day of induction started in auditorium by experts lecture by Jaswinder Singh on spiritual value he thought us about light and internal vibration and god as well 
 after that next session handover to Dr. Priya Darshni madam on universal human values she provides us great vision of life , relationship, physical facilities.
 
+# Day 4
+My fourth day at college started in tcc(testing and consultancy cell) of chemistry lecture by prof. Rajvir kaur it was great session that help me to chemistry plan during college life after that P2P lecture on C++ by causmic club team it was great peer to peer session 
+after that next session held on auditorium by expert lecture by Dr.
+Priya Darshani mam on universal human values. next session started by great singer of gndec session ended with laptop guidance 
+# Day 5
+
+
