@@ -10,5 +10,6 @@ after that causmic club takeover session they guided and mentor us on what to do
 
 
 # Day 3
-Our third day of induction started in auditorium 
+Our third day of induction started in auditorium by experts lecture by Jaswinder Singh on spiritual value he thought us about light and internal vibration and god as well 
+after that next session handover to Dr. Priya Darshni madam on universal human values she provides us great vision of life , relationship, physical facilities.
 
