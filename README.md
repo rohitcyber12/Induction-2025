@@ -1,6 +1,6 @@
 # Day 1 A GREAT BEGINNING 
 ##### My college journey began with an engaging and informative Induction Programme that helped me settle into the new environment.
-•Pray at gurudwara sahib
+######•Pray at gurudwara sahib
 •Blessings of god 
 •Interaction with faculty 
 At first day we started college with blessings of waheguru ji at gurudwara sahib which is shape of ship present at college premises after that we take tea and snacks and go to auditorium register ourselves and get welcome kit then we go inside auditorium.in auditorium an induction programme organised by causmic club members started after that chief guest came with principal sir and HODs 
