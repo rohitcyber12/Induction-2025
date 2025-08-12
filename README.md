@@ -29,6 +29,12 @@
 * Ethics
 ###### My fourth day at college started in tcc(testing and consultancy cell) of chemistry lecture by prof. Rajvir kaur it was great session that help me to chemistry plan during college life after that P2P lecture on C++ by causmic club team it was great peer to peer session 
 ##### after that next session held on auditorium by expert lecture by Dr.Priya Darshani mam on universal human values. next session started by great singer of gndec session ended with laptop guidance 
-# Day 5
+# Day 5 🎙️ Self introduction 
+###### Our 5th day started with English lecture by prof. Manjot kaur of self introduction to boost our confidence 
+## 📒Fun with mathematics 
+##### Prof. Rajbir kaur take our math lecture and told some basic concepts 
+## BEEE- Exploring physics 
+##### prof. Mandeep kaur took up our Beee lecture told us about this subject 
+
 
 
