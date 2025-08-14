@@ -46,7 +46,7 @@ prof. Mandeep kaur took up our Beee lecture told us about this subject
 # Day 6 📍Peer to peer interaction 
 our 6th day started at workshop seminar hall of c++ lecture by senior on basic coding,syntex and operators 
 next lecture taken by Prof.Jaswant Singh at same venue about future planning in our field
-## CML entre for multifaceted learning 
+## CML-Centre for multifaceted learning 
 after the break our next held on auditorium by Dr. Lakhvir singh Sekhon on various types of learning methods like SWAYAM NPTL to enhance our skills and learning for our enginnering career 
 * Prof.Jaswant singh
 * Dr. Lakhvir singh Sekhon
